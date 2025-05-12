@@ -33,6 +33,15 @@ While luck might play a small part in those truly spectacular crashes, mastering
 * Go for Combos: Want to boost your score? Try incorporating multiple tricks (like Pike, Scissor, and Knee Tuck) into a single jump. Landing successful jumps consecutively also earns you multiplier bonuses. However, be warned: attempting combos increases the risk of a messy fall, so master the basics first!
 If you find yourself thoroughly enjoying the physics-based flipping action of Wacky Flip, you might also want to check out similar titles like the parkour-focused Flip Runner, the household-object-flipping fun of Flip Bottle, or the diverse stunt environments of Crazy Flips 3D.
 
+## Stick to the Community and update more about the game
+Follow Wacky Flip on social media to stay updated with the latest news, tips, and fun challenges. Join the community and share your best flips!
+* [Behance](https://www.behance.net/wackyflip)
+* [Myspace](https://myspace.com/wackyflip)
+* [Linktree](https://linktr.ee/wackyflip)
+* [Wordpress](https://wackyflip.wordpress.com/)
+* [Flipboard](https://flipboard.com/@WackyFlipOf4s44)
+* [Mixcloud](https://www.mixcloud.com/wackyflip/)
+
 ## The Bottom Line: Get Ready to Flip Out!
 **[Wacky Flip](https://wackyflip.org)** isn't just a game; it's an engaging and often hilarious test of skill that will keep you coming back for "just one more try." With its diverse environments, challenging jumps, unlockable tricks, and addictive gameplay, Wacky Flip offers a unique and thoroughly entertaining experience. So, what are you waiting for? Jump in, perform some amazing stunts, and conquer all 70 increasingly challenging jumps. The world of wacky flips awaits!
 [Play now!](https://wackyflip.org)
