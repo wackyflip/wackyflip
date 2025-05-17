@@ -1,9 +1,9 @@
 # Wacky Flip: Hilarious Ragdoll Stunts Meet Skill-Based Backflipping!
-Master the chaos of airborne flips, defy gravity, and embrace the ragdoll mayhem in Wacky Flip! If you've ever imagined soaring through the air in a perfectly timed backflip—only to land in a wildly entertaining pile—this physics-based stunt game is your next obsession.
+Master the chaos of airborne flips, defy gravity, and embrace the ragdoll mayhem in **[Wacky Flip](https://wackyflip.org)**! If you've ever imagined soaring through the air in a perfectly timed backflip—only to land in a wildly entertaining pile—this physics-based stunt game is your next obsession.
 ![wacky-flip-game](https://wackyflip.org/data/image/options/wackyflip.org.png)
 
 ## What Is Wacky Flip?
-Wacky Flip is a skill-based, physics-driven stunt game where timing, coordination, and a sense of humor are your greatest allies. You control a floppy ragdoll athlete as they leap from dizzying heights, execute aerial tricks, and attempt to stick the landing with gymnastic precision—or fail hilariously trying.
+**[Wacky Flip](https://wackyflip.org)** is a skill-based, physics-driven stunt game where timing, coordination, and a sense of humor are your greatest allies. You control a floppy ragdoll athlete as they leap from dizzying heights, execute aerial tricks, and attempt to stick the landing with gymnastic precision—or fail hilariously trying.
 
 ### Key Features:
 * 70 Unique Jumps across 7 action-packed levels
