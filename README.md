@@ -27,8 +27,11 @@ Each phase is crucial, and perfecting the timing transforms Wacky Flip from goof
 
 ### Tips to Improve Your Flip Game
 ✔ Start with the Tutorial – Don’t skip it. It teaches the core mechanics essential for survival.
+
 ✔ Master Timing – Each movement—crouch, jump, flip, land—relies on precise taps or holds.
+
 ✔ Stack Combos – Chain tricks together to increase your score, but only when you’ve nailed the basics.
+
 ✔ Aim for Jump 9 – It unlocks Arcade Mode, where the true flipping madness begins!
 
 ## Play Now & Join the Flipping Community!
